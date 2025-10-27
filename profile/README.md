@@ -42,7 +42,7 @@ A fully digital world where every business can leverage technology to grow smart
 
 ## 🌐 Website
 
-Visit us at [**maztecnologies.net**](https://maztecnologies.net)
+Visit us at [**maztechnologies.net**](https://maztechnologies.net)
 
 ---
 
